@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ChefLex
 - 👀 I’m interested in Cooking, Baking, Photography, Graphic Design, Gaming, & Coding
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning computer basics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Discord or Instagram
 
